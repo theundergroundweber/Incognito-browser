@@ -2,10 +2,5 @@
 This browser should be unblocked by many places.
 
 
-click here
-     |
-     |
-     |
-    \ /
-     '
+click here>>>>>>>     
      [incognito](https://romanarts.wiki)
